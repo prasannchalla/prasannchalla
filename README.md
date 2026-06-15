@@ -18,11 +18,11 @@ Clinical Data Management and Pharmacovigilance
 
 ## Education
 
-Master of Science in Healthcare Informatics
-University of Wisconsin–Milwaukee
+Master of Science in Healthcare Informatics (3.8/4)
+University of Wisconsin–Milwaukee, United States 
 
-Doctor of Pharmacy (PharmD)
-Andhra University
+Doctor of Pharmacy (PharmD) (83.1 %)
+Andhra University, India
 
 ## Contact
 
